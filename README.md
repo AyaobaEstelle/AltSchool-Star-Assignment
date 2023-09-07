@@ -1,0 +1,1 @@
+AltSchool star assignment
